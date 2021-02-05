@@ -1,0 +1,2 @@
+Take powdered sugar in a glass bowl, add the refined oil, add milk, mix properly, add few drops of vanilla essence, add flour to it, add baking powder, mix well, add cocoa powder and then mix well.
+Finally put the batter in oven and bake it for thirty minutes at 180 degree celcius.
